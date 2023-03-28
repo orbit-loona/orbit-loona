@@ -1,7 +1,8 @@
 - 👋 Hi, I’m @O-01-67
 - 👀 I’m interested in Loona, Project Moon, and doing weird things to [Sandboxels](https://github.com/slweeb/sandboxels).
     - 💚 Haseul my beloved
-- 🌱 I’m mostly modding Sandboxels.
+    - stan loona
+- 🌱 I’m depressed.
 
 <!---
 - 📫 You can reach me by losing The Game.
