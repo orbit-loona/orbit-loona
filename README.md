@@ -1,9 +1,15 @@
 - 👋 Hi, I’m @O-01-67
-- 👀 I’m interested in Loona, Project Moon, and doing weird things to [Sandboxels](https://github.com/slweeb/sandboxels).
+- 👀 I’m interested in Loona and Kep1er.
     - 🧡 Yeojin my beloved
+    - I really love Another Dream
     - stan loona
-- 🌱 Did I mention Loona?.
-
+    - stan kep1er
+    - 🌱 Did I mention Loona and Kep1er?.
+- I used to do weird things to [Sandboxels](https://github.com/slweeb/sandboxels).
+    - I still do sometimes, but less often.
+- I love K-pop.
+    - I really love Loona and Kep1er.
+    - I really love K-pop.
 <!---
 - 📫 You can reach me by losing The Game.
 - 💞️ I’m looking to collaborate on making people stan LOOΠΔ
