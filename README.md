@@ -1,16 +1,13 @@
 - 👋 Hi, I’m @O-01-67
-- 👀 I’m interested in Loona and Kep1er.
+- 👀 I love K-pop.
     - 🧡 Yeojin my beloved
-    - I really love Another Dream
     - stan loona
     - stan kep1er
-    - 🌱 Did I mention Loona and Kep1er?.
-- I used to do weird things to [Sandboxels](https://github.com/slweeb/sandboxels).
-    - I still do sometimes, but less often.
+- I used to mod [Sandboxels](https://github.com/slweeb/sandboxels).
 - I love K-pop.
     - I really love Loona and Kep1er.
     - I really love K-pop.
 <!---
 - 📫 You can reach me by losing The Game.
-- 💞️ I’m looking to collaborate on making people stan LOOΠΔ
+- 💞️ I’m looking to collaborate on making people stan LOOΠΔ and also something else. Also, I'm feeling lonely and I wish I'd find a lover that could hold me.
 --->
