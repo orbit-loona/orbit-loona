@@ -9,5 +9,5 @@
     - I really love K-pop.
 <!---
 - 📫 You can reach me by losing The Game.
-- 💞️ I’m looking to collaborate on making people stan LOOΠΔ and also something else. Also, I'm feeling lonely and I wish I'd find a lover that could hold me.
+- 💞️ I’m looking to collaborate on making people stan LOOΠΔ and also something else. Also, I'm feeling lonely and I wish I'd find a lover [who is also a girl] that could hold me.
 --->
