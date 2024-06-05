@@ -2,7 +2,7 @@
 - 👀 I love K-pop.
     - 🧡 Yeojin my beloved
     - LOONA, Kep1er, EVERGLOW, Girls' Generation, STAYC, BLACKPINK, IVE, Dreamcatcher, TWICE, IZ*ONE, (G)I-DLE, Red Velvet 
-- I used to mod [Sandboxels](https://github.com/slweeb/sandboxels).
+- I used to mod [Sandboxels](https://github.com/R74nCom/sandboxels).
 - I really love K-pop.
 - 📫 The Game.
 <!---
